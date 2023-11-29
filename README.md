@@ -1,2 +1,2 @@
-# Go/jo-is-the-best
-Gojo is the best no matter what Adrian says :3
+# Go/jo-shit
+Gojo is the worst no matter what noel says :3
